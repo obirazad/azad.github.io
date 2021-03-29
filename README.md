@@ -1,1 +1,0 @@
-# azad.github.io
